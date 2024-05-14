@@ -12,7 +12,8 @@
 # Tereza Oliveira
 
 Atividade 1: Trello 
-- [Grupo](link)
-
-
-
+- [Grupo](https://trello.com/invite/b/rOQI50B9/ATTIc5a14ea4081add99f7a7563662193a6755ADEEE1/projeto-pessoal)
+- [Grupo](https://trello.com/invite/b/rOQI50B9/ATTIc5a14ea4081add99f7a7563662193a6755ADEEE1/projeto-pessoal)
+- [Grupo](https://www.canva.com/design/DAGEjaXxHqU/f4kD7Ghe-EfPqTGlCe5M9g/edit?utm_content=DAGEjaXxHqU&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton)
+- [Grupo](https://www.canva.com/design/DAGCfg3ghNs/d1b127MsAFDdExiDH9TyHA/edit?utm_content=DAGCfg3ghNs&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton)
+- [Grupo](https://trello.com/invite/b/CZbbc4G3/ATTI8610a3036f19f49b66e61238d5ed0f740DDCEE24/organizacao-do-professor-para-fluxo-hibrido-na-escola) 
