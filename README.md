@@ -1,4 +1,4 @@
-# Olá, turma do 1ºC! 
+9# Olá, turma do 1ºC! 
 ## Este repositório será o seu caderno virtual de atividade e apresentações durante o período da UC2 Gestão de Projetos. 
 
 ![img](https://blog.acelerato.com/wp-content/uploads/2020/08/5-beneficios-da-gesta%CC%83o-de-projetos-para-a-sua-empresa-1200x640.png)
@@ -13,6 +13,7 @@
 
 Atividade 1: Trello 
 - [Grupo](link)
-
+Atividade miro
+(https://miro.com/app/board/uXjVKF1tF_0=/?share_link_id=721374256602)
 
 
