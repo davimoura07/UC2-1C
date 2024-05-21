@@ -12,8 +12,13 @@
 # Davi moura
 
 Atividade 1: Trello 
-- [Grupo](link)
-Atividade miro
-(https://miro.com/app/board/uXjVKF1tF_0=/?share_link_id=721374256602)
 
+- [Atividade do Trello](https://trello.com/invite/b/rOQI50B9/ATTIc5a14ea4081add99f7a7563662193a6755ADEEE1/projeto-pessoal)
 
+- [Atividade do Trello](https://trello.com/invite/b/prGwfX4m/ATTI5226017225f7c1fa674f4e3604dd49e11A8E7AB2/analise-swot-netflix)
+
+- [Atividade do Trello](https://trello.com/invite/b/CZbbc4G3/ATTI8610a3036f19f49b66e61238d5ed0f740DDCEE24/organizacao-do-professor-para-fluxo-hibrido-na-escola)
+
+- [Atividade Miro](https://miro.com/app/board/uXjVKF1tF_0=/?share_link_id=721374256602)
+
+- [Atividade Docs](https://docs.google.com/document/d/17qNP_SRQnkmdG-rfl5p2nRPLo-pxK_5dVOJ7NnIPOjU/edit?usp=sharing)
