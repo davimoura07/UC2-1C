@@ -22,3 +22,7 @@ Atividade 1: Trello
 - [Atividade Miro](https://miro.com/app/board/uXjVKF1tF_0=/?share_link_id=721374256602)
 
 - [Atividade Docs](https://docs.google.com/document/d/17qNP_SRQnkmdG-rfl5p2nRPLo-pxK_5dVOJ7NnIPOjU/edit?usp=sharing)
+
+- [Atividade da Liguagem GO](https://www.canva.com/design/DAGEjaXxHqU/f4kD7Ghe-EfPqTGlCe5M9g/edit)
+
+- [Atividade de Problematica](https://www.canva.com/design/DAGCfg3ghNs/d1b127MsAFDdExiDH9TyHA/edit)
