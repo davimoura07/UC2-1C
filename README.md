@@ -26,3 +26,5 @@ Atividade 1: Trello
 - [Atividade da Liguagem GO](https://www.canva.com/design/DAGEjaXxHqU/f4kD7Ghe-EfPqTGlCe5M9g/edit)
 
 - [Atividade de Problematica](https://www.canva.com/design/DAGCfg3ghNs/d1b127MsAFDdExiDH9TyHA/edit)
+
+- [Atividade da planilha](https://docs.google.com/spreadsheets/d/15r5nhLpCM5i1E_Zci2s4DUmjR404hpoycgde-5hmax4/edit?usp=sharing)
